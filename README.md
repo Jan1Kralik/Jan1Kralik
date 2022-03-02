@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Jan1Kralik
-- 👀 I’m interested in not IT
+- 👀 I’m not interested
 - 🌱 I’m currently learning IT
 - 💞️ I’m looking to collaborate on projects
 - 📫 How to reach me don't
